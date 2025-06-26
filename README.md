@@ -25,7 +25,7 @@
 
 点击访问：<a href="https://hl78.pages.dev/">黑料大事记</a>
 
-点击访问：<a href="https://hl76.pages.dev/>每日分享最新黑料网</a>
+点击访问：<a href="https://hl76.pages.dev/">每日分享最新黑料网</a>
 
 点击访问：<a href="https://hl79.pages.dev/">黑料社区</a>
 
